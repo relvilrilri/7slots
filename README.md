@@ -1,0 +1,2 @@
+# 7slots
+7SLOTS HIZLI VE GÜNCEL GİRİŞ
